@@ -1,0 +1,2 @@
+# MAGICAL_LICENSE
+MAGICAL LICENSE Template For Protection 
